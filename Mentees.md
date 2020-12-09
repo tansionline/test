@@ -6,5 +6,5 @@
 4. Contact he/she from Linkedin, Twitter or Mail.
 5. Last step: Join [Discord Server](https://discord.com/invite/zkPb8P4B?utm_source=Discord%20Widget&utm_medium=Connect)
 
-** You can give feedback then meeting **
+**You can give feedback then meeting**
  
